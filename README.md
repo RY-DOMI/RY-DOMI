@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Auer Dominik
-- 👀 I’m interested in space engineering
 - 📫 dominik.auer04@gmail.com
